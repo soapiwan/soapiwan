@@ -1,4 +1,4 @@
-## ignore this guys im working on it thx rick
+## ignore this guys its being worked on thx rick ^_^
 
 <!--
 **soapiwan/soapiwan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
