@@ -5,8 +5,8 @@
 <h6 align="center">
 "You and I have begun to blur"
 
-[](https://files.catbox.moe/nszfep.webp)
-[](https://files.catbox.moe/jyjzq0.webp)
+![](https://files.catbox.moe/nszfep.webp)
+![](https://files.catbox.moe/jyjzq0.webp)
 
 <h6 align="center">
   
