@@ -1,6 +1,6 @@
 <h6 align="center">
 
-![profileviews](https://komarev.com/ghpvc/?username=soapiwan&color=red)
+![profileviews](https://komarev.com/ghpvc/?username=soapiwan&style=plastic&label=goobers+&color=red&abbreviated=true)
 
 *sam / kieran*
 
@@ -13,6 +13,10 @@
 
 <sub><sup>" if its hostile, you kill it. "</sup></sub>
 
-![](https://64.media.tumblr.com/8eb342b38f5f7652681430dae64f37f6/ca0a5a094ff6fcbf-53/s1280x1920/a67dd3731c8aa1aee86eb40dc7f54125dad101ca.pnj)
+*star wars, kcd, metro, rdr, tbbt*
+
+<sub><sup>^ current main fixations ^</sup></sub>
+
+![](https://64.media.tumblr.com/f61122fad226e55f0cbc23ea7cf14bae/d083df8da3513e0a-96/s400x600/b64b55d29b0f2bed6989491d60988744c3a8e6d4.pnj)
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=suzannehelen&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&bar_color=d9634d&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
