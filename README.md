@@ -20,8 +20,6 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=suzannehelen&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&bar_color=d9634d&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-⛔ = my default status! does not actually mean dnd
+*⛔ = my default status! does not actually mean do not disturb*
 
-i block freely. under 14 dni. adults ok just be respectful, im 16
-
-+basic dni criteria
+*i block freely. under 14 dni. adults ok just be respectful,* im 16 *. + basic dni criteria*
