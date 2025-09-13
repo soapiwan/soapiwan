@@ -12,7 +12,7 @@
 
 <sub><sup>" if its hostile, you kill it. "</sup></sub>
 
-*star wars, kcd, metro, rdr, tbbt*
+*star wars, the big bang theory, kingdom come deliverance, cyberpunk 2077*
 
 <sub><sup>^ current main fixations ^</sup></sub>
 
