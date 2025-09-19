@@ -12,7 +12,7 @@
 
 <sub><sup>" if its hostile, you kill it. "</sup></sub>
 
-*star wars, the big bang theory, assassin's creed games, kcd, cyberpunk 2077*
+*star wars, dc but specifically superman, the big bang theory, assassin's creed games, kcd, cyberpunk 2077*
 
 <sub><sup>^ current main fixations ^</sup></sub>
 
