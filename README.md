@@ -22,4 +22,6 @@
 
 *⛔ = my default status! does not actually mean do not disturb*
 
-*i block freely. under 14 dni. adults ok just be respectful,* im 16 *. + basic dni criteria*
+*i block freely. under 14 dni. adults ok just be respectful,* im 16 *. + basic dni criteria.*
+
+*rdr fans IWC, especially micah likers/defenders, yall DNI!!! hes literally racist, ok? get away from me brah.. weirdos*
