@@ -1,6 +1,6 @@
 <h5 align="center">
 
-![profileviews](https://komarev.com/ghpvc/?username=soapiwan&style=plastic&label=goobers+&color=red&abbreviated=true)
+![profileviews](https://komarev.com/ghpvc/?username=soapiwan&style=plastic&label=goobers+&color=red)
 
 *sam / kieran*
 
