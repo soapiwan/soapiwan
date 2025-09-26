@@ -12,7 +12,7 @@
 
 <sub><sup>" if its hostile, you kill it. "</sup></sub>
 
-*dc, star wars (return of the jedi is my favourite, ok?), the big bang theory*
+*resident evil, dc, star wars, the big bang theory*
 
 <sub><sup>^ current main fixations ^</sup></sub>
 
