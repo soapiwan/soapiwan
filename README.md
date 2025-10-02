@@ -2,7 +2,7 @@
 
 ![profileviews](https://komarev.com/ghpvc/?username=soapiwan&style=plastic&label=goobers+&color=red)
 
-*sam / kieran*
+*sam / suzi*
 
 <sub><sup>she / her</sup></sub>
 
