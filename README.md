@@ -12,7 +12,7 @@
 
 <sub><sup>" if its hostile, you kill it. "</sup></sub>
 
-*resident evil, bg3, dc, star wars, the big bang theory*
+*baldur's gate 3, resident evil, harry potter, dc, star wars, the big bang theory*
 
 <sub><sup>^ current main fixations ^</sup></sub>
 
