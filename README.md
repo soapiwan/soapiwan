@@ -26,4 +26,6 @@
 
 *i block freely. under 14 dni. adults ok just be respectful,* im 16 *. + basic dni criteria.*
 
-*rdr fans IWC.micah likers/defenders DNI!!! hes literally racist, ok? get away from me brah.. out here defending racists in the big 25 is nuts*
+<h6 align="center">
+  
+*rdr(2) fans iwec, preferably dni*
