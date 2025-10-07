@@ -28,4 +28,4 @@
 
 <h6 align="center">
   
-*rdr(2) fans iwec, preferably dni*
+*rdr(2) fans iwec, preferably dni, sory a lot of you r weird...*
