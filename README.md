@@ -1,31 +1,31 @@
-<h5 align="center">
-
-![profileviews](https://komarev.com/ghpvc/?username=soapiwan&style=plastic&label=goobers+&color=red)
-
-*sam / suzi*
-
-<sub><sup>she / her</sup></sub>
-
-![](https://64.media.tumblr.com/b0ed17f2a5b471e67a149714e640c0de/33cc7508e49be570-65/s250x400/c92626aa7b12a7f745ed717d79c2d07a1eb2c9cc.pnj)
-
 <h6 align="center">
 
-<sub><sup>" if its hostile, you kill it. "</sup></sub>
+![](https://64.media.tumblr.com/c04560be0aaf724362240db460f31f98/141ce20fa5509dc6-79/s1280x1920/c8f06156376433ffba95213be28b4df8ab48c482.pnj)
 
-*baldur's gate 3, resident evil, harry potter, dc, star wars, the big bang theory*
+![profileviews](https://komarev.com/ghpvc/?username=soapiwan&style=plastic&label=views+&color=bdb4b9)
 
-<sub><sup>^ current main fixations ^</sup></sub>
+![](https://64.media.tumblr.com/b44968051ab844710ae03c11838fb492/af3c28aa0d853de7-94/s400x600/7036427ea1c436cc2c142e6644320be0834086c1.pnj)
 
-![](https://64.media.tumblr.com/f61122fad226e55f0cbc23ea7cf14bae/d083df8da3513e0a-96/s400x600/b64b55d29b0f2bed6989491d60988744c3a8e6d4.pnj)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=suzannehelen&cover_image=true&theme=natemoo-re&show_offline=false&background_color=false&interchange=false&profanity=false&bar_color=bdb4b9&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=suzannehelen&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&bar_color=d9634d&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+![](https://64.media.tumblr.com/3861efe7d15fdb9028cf6328005f6a97/141ce20fa5509dc6-d0/s1280x1920/9d5063044921ba95519efe752b6900213433e6db.pnj)
 
-<h5 align="center">
+please do not make jokes about strokes around me (ex. "spelt so badly i thought i was having a stroke")
 
-*⛔ = my default status! does not actually mean do not disturb*
+↓ DNI ↓
 
-*i block freely. under 14 dni. adults ok just be respectful,* im 16 *. + basic dni criteria.*
+general dni criteria, pro/darkship, tcc, hazbin hotel/helluva boss/dandy's world/forsaken fans
 
-<h6 align="center">
-  
-*rdr(2) fans iwec unless i already know you*
+rdr(2) fans on thin line, interact with caution unless i already know you
+
+i block freely, just dont be a weirdo. dni if you're under 14
+
+![](https://64.media.tumblr.com/f2ac9dafb7f8d7bd5d76abbd98c00541/43e796fd77866d74-a0/s640x960/0bfa195fb0d37757e77d336d429dc2b4ce523c2d.pnj)
+
+↓ stuff i like ↓
+
+star wars, lotr/the hobbit, dc/marvel, tons of video games (metro, bg3, kcd, rdr, re, swtor, etc.)
+
+iwtv (2022), tbbt + way more, might make an extensive list someday.
+
+![](https://64.media.tumblr.com/0cd6e5a16affc745e7cd83405f7fe621/24a1316a9dd0c2cc-97/s250x400/6bb237d7590ffb7197983cc8bbae9c28e243c99f.gifv)
