@@ -24,7 +24,7 @@ i block freely, just dont be a weirdo. dni if you're under 14
 
 ↓ stuff i like ↓
 
-star wars, lotr/the hobbit, harry potter, dc/marvel, tons of video games (metro, bg3, kcd, rdr, re, swtor, etc.)
+star wars, lotr/the hobbit, harry potter, dc/marvel, tons of video games (metro, dispatch, bg3, kcd, rdr, re, swtor, etc.)
 
 iwtv (2022), tbbt + way more, might make an extensive list someday.
 
