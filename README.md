@@ -1,12 +1,12 @@
 <h6 align="center">
 
+i get called cannibal when i say im having soup for dinner (call me soup. or anything else really!)
+
 ![profileviews](https://komarev.com/ghpvc/?username=soapiwan&style=plastic&label=views+&color=bdb4b9)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=suzannehelen&cover_image=true&theme=natemoo-re&show_offline=false&background_color=false&interchange=false&profanity=false&bar_color=bdb4b9&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 i love star wars, lotr/hobbit, bg3, iwtv, harry potter (not jkr), marvel, dc, fnaf, musicals, and soo much more, ok! im very cool i swear
-
-i get called cannibal when i say im having soup for dinner
 
 not very active on pony town anymore, only when im asked :') add me on discord if needed, same user as on here ^_^
 
