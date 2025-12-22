@@ -6,6 +6,8 @@
 
 i love star wars, lotr/hobbit, bg3, iwtv, harry potter (not jkr), marvel, dc, fnaf, musicals, and soo much more, ok! im very cool i swear
 
+i get called cannibal when i say im having soup for dinner
+
 not very active on pony town anymore, only when im asked :') add me on discord if needed, same user as on here ^_^
 
 <img src="https://github.com/user-attachments/assets/58e988e1-6ef7-4c3e-b1b8-25ee76732b75" width="150">
