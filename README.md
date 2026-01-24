@@ -7,7 +7,7 @@
 
 ⠀
 
-soup⠀⠀⠀he/him⠀⠀⠀6teen
+misha⠀⠀⠀he/him⠀⠀⠀6teen
 
 u da real fireball
 
