@@ -7,7 +7,7 @@
 
 ⠀
 
-misha⠀⠀⠀he/him⠀⠀⠀6teen
+simon⠀⠀⠀he/him⠀⠀⠀6teen
 
 u da real fireball
 
